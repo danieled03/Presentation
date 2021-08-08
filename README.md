@@ -15,7 +15,7 @@
          +o+++++++/::/++++++++:                  contacts
        `/+++++++/`    .++++++++/                 --------
       `/++++++++       `++++++++/                Telegram: t.me/danieledestradi
-     `+++++++++-        /+++++////`              Reddit: u/danieledestradi
+     `+++++++++-        /+++++////`              Reddit: u/Nice-Wonder-8369
     `++++++++++-        :+++++++/-`              Twitter: DestradiDaniele
    .++++++++/::.        .:/++++++++:`            Email: d.destradi@gmail.com
   .++++/:.`                  .-:+++++`           
